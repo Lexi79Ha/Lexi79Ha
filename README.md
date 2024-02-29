@@ -1,7 +1,7 @@
 <p> Hi there😄</p>
 <p>🔭 I’m currently interning at EMR Technical Solutions, here are some of the projects I'm working on.....<br></p>
+![image](https://github.com/Lexi79Ha/Lexi79Ha/assets/139013867/62d0fb1b-fae4-4519-a823-6131af8aeae7)
 
-![image](https://github.com/Lexi79Ha/Lexi79Ha/assets/139013867/4d7239a4-391e-42ab-997b-bd1b4e94ce31)
 
 
 
