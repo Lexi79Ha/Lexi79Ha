@@ -1,3 +1,8 @@
+I'm currently interning at EMR Techincal Solutions, here are some of the projects I'm working on😄
+![image](https://github.com/Lexi79Ha/Lexi79Ha/assets/139013867/c789a95a-610f-4ff4-b8c6-09997e8cafce)
+
+
+
 
 
 <!--
