@@ -1,5 +1,5 @@
-I'm currently interning at EMR Techincal Solutions, here are some of the projects I'm working on😄
-![image](https://github.com/Lexi79Ha/Lexi79Ha/assets/139013867/c789a95a-610f-4ff4-b8c6-09997e8cafce)
+![image](https://github.com/Lexi79Ha/Lexi79Ha/assets/139013867/4d7239a4-391e-42ab-997b-bd1b4e94ce31)
+
 
 
 
@@ -19,4 +19,3 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-![image](https://github.com/Lexi79Ha/Lexi79Ha/assets/139013867/14e165aa-36d1-49e4-aae6-a0328c08cf90)
