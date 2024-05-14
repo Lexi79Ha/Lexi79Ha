@@ -1,4 +1,4 @@
-![image](https://github.com/Lexi79Ha/Lexi79Ha/intro.png)
+![image](https://github.com/Lexi79Ha/Lexi79Ha/introimg.png)
 
 
 
