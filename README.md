@@ -1,4 +1,4 @@
-![Screenshot 2024-05-14 154412](https://github.com/Lexi79Ha/Lexi79Ha/assets/139013867/7df0fc7d-aa0c-44e3-83ad-be11594f1b92)
+![Screenshot 2024-09-13 111505.png](https://github.com/Lexi79Ha/Lexi79Ha/assets/139013867/7df0fc7d-aa0c-44e3-83ad-be11594f1b92)
 
 
 
